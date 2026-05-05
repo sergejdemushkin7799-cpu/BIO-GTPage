@@ -1,7 +1,8 @@
 # Below, there is my short bio about me and my interests.
 
 
-![Thats me](./1000091907.jpg)
+<img src="1000091907.jpg" alt="Thats me" width="500">
+
 
 
 
