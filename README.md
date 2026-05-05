@@ -46,7 +46,7 @@ After the medical university i had go to the agrarian universuty in Pushkin city
 
 And that's how i ended up here. Im glad to study in netology, this school will help me to get the profession of my life from my dreams. I want to be a homeworking python-programmer(preferably), because i like to have a distantion from work, this is my comfortable zone.
 
-I love fishing at the countryside. The river flows through my  village. Like to ride on a bike a lot through the different landscapes up to 10 kilometers for a day. I like to grow some plants at the village and woodlices in my home.
+I love fishing at the countryside. The river flows through my  village. Like to ride on a bike a lot through the different landscapes up to 10 kilometers for a day. I like to grow some plants at the village and woodlices in my home. Breeding and crossing woodlices is my newest hobbie.There are new colors of woodlices appearing now through the 4 months of randomly crossing. Today i saw an interesting mutation appeared, possibly, due to closely related crossbreeding. This mutated woodlice doesnt have one of two eyes and doesnt have antennaes at all. Looking so horrible and pity! But this is essence of nature.
 
 <img src="1000091803.jpg">
 <img src="IMG_20260506_015545.jpg">
