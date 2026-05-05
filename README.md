@@ -49,4 +49,5 @@ And that's how i ended up here. Im glad to study in netology, this school will h
 I love fishing at the countryside. The river flows through my  village. Like to ride on a bike a lot through the different landscapes up to 10 kilometers for a day. I like to grow some plants at the village and woodlices in my home.
 
 <img src="1000091803.jpg">
+<img src="IMG_20260506_015545.jpg">
 <img src="1000091303.jpg">
